@@ -1,15 +1,15 @@
 # hi
 
-![guh](https://user-images.githubusercontent.com/117776883/200672131-8efaf768-b7d5-48fc-b205-6230ea6c6805.PNG)
+![comet](https://user-images.githubusercontent.com/117776883/207159565-5352d29d-314f-421b-943a-319528129589.png)
 
-### WHO AM I?
-i'm a loser on the internet, usually make shit for [roblox](https://www.roblox.com/users/3172997357/profile)
-and that is basically it
+### ŗ̵̪̬͕̤͓̱̔͊̏̋̌̉͛̆̚͠ư̶̢̊̈́̀͑́̈n̷͇̳̲̔̓̉̈́̀̑̈́̉̎
+ɾυɳ ϝɾσɱ ყσυɾ ϝҽαɾʂ
 
-### WHY ARE YOU HERE? CAN YOU EVEN FUCKING CODE YOU GOD DAMN MORON?
-no i cant code, i do shit on roblox like building (with parts ewwwww)
+### ê̵͚̈́͋̓̈́̚s̸̢̨̝̩̗̪̠̑͂̂̚͜͝c̸͍̘̙͙͙̘̹̈́̿̃́̈́͒̈́͘̕a̴̧̘̗̱̺͍̳̓̑̊̆̈p̴̛̹͚͉̳̞̜̳̺̣͍͂͛͑̓̉̚e̵͈̮̗̲͍͍̥̲͑̊̎̕̚
 
-### are you retarded?
-very much so!
+e̵̢̤̰̦̳̟̓̽͛ş̸̛̖̘̙͈̤̪̅̈́̀̆c̷͔͇̲͖̲̺̃͆͌͝ͅā̷̛̰͔͊̄̓̕p̶̲̬͓̄̅̏̈̉e̴̖̝͙̱͇̓̑ ̷̼̽̓̌̈́̉̍̉͠s̸̡̡̳̘̮̖̹̭̟̃̈́͊͜ő̷̮͈̞̤̻͕̩̋̓̿̓c̵̮̘͙̤͉͚̰͂̓͂î̵̧̞͚͎̦̼͙̳͍̫͂̅ȩ̴̟̀͝ț̶̟̫̮̖͚̤̑̊ȳ̷̢͇̫̪͖̋́̈̏̉̒̓,̷̩̼̳̭̞͓͒͐͗̍̌̒̀͜͠͝ ̸̛̛͚͐́̔͘y̴̦̪̭̚ǫ̴̢̻͖̉̒̏̐̿͘u̴̞͙͋̎̃͌̕'̶̪̫̯̝̲̦̝̫̝̾̊̄̈́͝ͅr̴̙͓͖̳͇̆̈́̓̾̓ḛ̵̢̛̰́̿͝ ̴͕̟̺͝ų̵̗̼͈̻̘̲̖̰͍͌̾͐̐ņ̷̞̮̜͈̹͙͛̆̍̑̄͑̈́̃w̵̨̢͇̥͙̪͉̽ẹ̷̈̈̐͋̄̎̑̓͝͝ľ̶̤͈̫͎͚̣͆̒͐͋͠c̷̫̲̫̱͕̼̞̻̽͌͠ó̴̭̣̟m̸̺̟͚̲̱͓̤̯̞̉̆͋̈́̀̿̚ĕ̵̳̰͇̱̗̠̯͛͂̇͑̑̚
 
-silly
+### cₒₘₑₜ?
+![comet](https://user-images.githubusercontent.com/117776883/207159565-5352d29d-314f-421b-943a-319528129589.png)
+
+
